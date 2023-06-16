@@ -9,7 +9,7 @@ Strengths that I currently have or am committed to developing is Computer skills
 Values that carried with myself to success in my field is Self-development, Integrity, Commitment
 
 
-The most passionate about in the field of cybersecurity is security professionals want to protect and empower people with the knowledge needed to embrace security aware behaviors.
+The most passionate about in the field of cybersecurity is security professionals want to protect and empower people with the knowledge needed to embrace security aware behaviours.
 
 
 I would like to reflect as Cybersecurity Specialist in my organization who keeps cybercrime at bay.
